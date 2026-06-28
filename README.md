@@ -1,1 +1,1 @@
-# Pureore-capital
+sajere-chinwemwe-sjr
